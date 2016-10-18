@@ -1,1 +1,1 @@
-files describing two answers to homework questions
+This game is about water sports
